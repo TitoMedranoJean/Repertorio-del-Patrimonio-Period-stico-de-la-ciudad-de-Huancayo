@@ -71,3 +71,10 @@ LA VOZ
 ![Imagen de WhatsApp 2024-07-21 a las 01 10 59_442d7eeb](https://github.com/user-attachments/assets/7fdc062e-67ef-4deb-b99b-528d3320b477)
 ![Imagen de WhatsApp 2024-07-21 a las 01 10 59_554d9143](https://github.com/user-attachments/assets/31627bb5-886e-4254-a00f-60a8d68b5a0f)
 ![Imagen de WhatsApp 2024-07-21 a las 01 10 59_2f0eb079](https://github.com/user-attachments/assets/36cc879a-00be-4264-9fb0-8ed498de8b58)
+![Imagen de WhatsApp 2024-07-21 a las 01 11 01_fcd483c3](https://github.com/user-attachments/assets/5c44c317-85f6-4ea7-8f6f-f2cb58d91520)
+![Imagen de WhatsApp 2024-07-21 a las 01 11 01_7665313c](https://github.com/user-attachments/assets/027e35a5-3ce9-47b2-841b-9acf8a825a39)
+
+PRIMICIA
+
+
+![Imagen de WhatsApp 2024-07-20 a las 16 36 30_1ddfd202](https://github.com/user-attachments/assets/bcfef0cd-4844-4f87-8a5c-251259c197ae)

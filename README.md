@@ -1,7 +1,7 @@
 # Repertorio-del-Patrimonio-Periodístico-en-la-ciudad-de-Huancayo
 Desde 1971 a 1996.
 
-(AQUÍ ESCRIBES SU DESCRIPCIÓN) (CORREO-1971)
+(AQUÍ ESCRIBES SU DESCRIPCIÓN) (CORREO-Julio-1971)
 
 (AQUI JALAS O ARRASTRAS LAS FOTOGRAFÍA)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 35_9e2ffbab](https://github.com/user-attachments/assets/0dfad0b1-eff0-4718-9bf7-e2ed4e54ed64)
@@ -33,3 +33,10 @@ DEJANDO UN RENGLON DE ESPACIO (portadas)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 43_9716c638](https://github.com/user-attachments/assets/e3074cda-5e04-4ca7-a813-e09d39b17951)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 44_4daf3839](https://github.com/user-attachments/assets/3215fa45-ec15-43cd-b701-069403a7f09d)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 44_d0fc3332](https://github.com/user-attachments/assets/b73dafbc-7a96-4407-9ff9-cb59d9b925d1)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 44_d22f9c1c](https://github.com/user-attachments/assets/3ac2b528-bb33-4055-ac42-d3bca36a7a7d)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 44_f2235f11](https://github.com/user-attachments/assets/302b6120-b67c-4f37-9b69-7e811efe2981)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 45_6b295615](https://github.com/user-attachments/assets/c888b4b4-d418-4f7f-a268-9e2eff74689c)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 45_972fb1e4](https://github.com/user-attachments/assets/414b3249-c5d7-4e81-b783-58e16375e496)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 45_ea165acf](https://github.com/user-attachments/assets/af3647fd-f4ec-4cda-b520-5b2042f68870)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 46_427b3386](https://github.com/user-attachments/assets/9ac122e4-5241-479f-b0fe-d9ee1d28739c)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 46_079281b6](https://github.com/user-attachments/assets/c3620900-7bf5-4c4f-8ed4-af2d4421b4b7)

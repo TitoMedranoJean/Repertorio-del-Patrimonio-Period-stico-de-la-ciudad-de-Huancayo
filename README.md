@@ -1,7 +1,7 @@
 # Repertorio-del-Patrimonio-Periodístico-en-la-ciudad-de-Huancayo
 Desde 1971 a 1996.
 
-(AQUÍ ESCRIBES SU DESCRIPCIÓN)
+(AQUÍ ESCRIBES SU DESCRIPCIÓN) (CORREO-1971)
 
 (AQUI JALAS O ARRASTRAS LAS FOTOGRAFÍA)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 35_9e2ffbab](https://github.com/user-attachments/assets/0dfad0b1-eff0-4718-9bf7-e2ed4e54ed64)
@@ -16,7 +16,16 @@ Desde 1971 a 1996.
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 39_b099ee7d](https://github.com/user-attachments/assets/f725646c-cd36-4307-bb69-1ffb94d866a3)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 39_1cf3aa2e](https://github.com/user-attachments/assets/403273b4-caec-4c8a-a4f3-7ab159022898)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 39_a98fc1f7](https://github.com/user-attachments/assets/993e5b15-3f5b-4dea-8387-5f7cf8580718)
-
-
-
-DEJANDO UN RENGLON DE ESPACIO
+DEJANDO UN RENGLON DE ESPACIO (portadas)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 39_6be2873d](https://github.com/user-attachments/assets/3329ad22-7347-4724-a20a-60bf767bbfd5)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 39_76704cd6](https://github.com/user-attachments/assets/ae6eee26-e228-4bf8-b3e7-53d9eb0202b3)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 40_3330e4e2](https://github.com/user-attachments/assets/82b5b1a6-7828-47e1-85ab-7dbe897c131e)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 40_ff981781](https://github.com/user-attachments/assets/81f9babd-1ae2-4f1b-95ce-3a0bf6867006)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 40_52343283](https://github.com/user-attachments/assets/015d615e-a234-40aa-8afb-e82537c802f7)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 41_f3852163](https://github.com/user-attachments/assets/d3061b51-c4ac-4dde-91b1-337c32aea861)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 41_374c8c3c](https://github.com/user-attachments/assets/1c2ce2d3-86fb-474e-a4ac-79a0e5354399)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 41_2d9d9768](https://github.com/user-attachments/assets/e50287ad-c84a-42d5-8c4e-c24a4c1f2e15)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 42_0af87758](https://github.com/user-attachments/assets/bfb7f19e-3617-4eb3-aa13-840868b468ba)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 42_abf21259](https://github.com/user-attachments/assets/7e075191-98b1-41d4-a762-c7d1c1ddf4b5)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 42_a3bba0df](https://github.com/user-attachments/assets/a335a07c-a6df-4863-91f6-26f53b2af0b4)
+![Imagen de WhatsApp 2024-07-21 a las 00 17 43_d5fe4d51](https://github.com/user-attachments/assets/b87e3dff-9521-4a3c-ac1e-43f429bbbe24)

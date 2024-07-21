@@ -4,6 +4,7 @@ Desde 1971 a 1996.
 (AQUÍ ESCRIBES SU DESCRIPCIÓN) (CORREO-Julio-1971)
 
 (AQUI JALAS O ARRASTRAS LAS FOTOGRAFÍA)
+
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 35_9e2ffbab](https://github.com/user-attachments/assets/0dfad0b1-eff0-4718-9bf7-e2ed4e54ed64)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 35_c5664389](https://github.com/user-attachments/assets/486e0944-0459-4bba-af0b-8127b64b813a)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 35_97a2d470](https://github.com/user-attachments/assets/bdd831c6-f79b-4a98-ad73-ca5aea614c59)
@@ -40,3 +41,5 @@ DEJANDO UN RENGLON DE ESPACIO (portadas)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 45_ea165acf](https://github.com/user-attachments/assets/af3647fd-f4ec-4cda-b520-5b2042f68870)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 46_427b3386](https://github.com/user-attachments/assets/9ac122e4-5241-479f-b0fe-d9ee1d28739c)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 46_079281b6](https://github.com/user-attachments/assets/c3620900-7bf5-4c4f-8ed4-af2d4421b4b7)
+
+LA VOZ

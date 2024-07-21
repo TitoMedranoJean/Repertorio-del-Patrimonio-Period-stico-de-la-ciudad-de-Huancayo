@@ -55,13 +55,19 @@ LA VOZ
 ![Imagen de WhatsApp 2024-07-21 a las 01 10 50_660ec82e](https://github.com/user-attachments/assets/cffea994-0b7a-4070-af4f-333b34823ff0)
 ![Imagen de WhatsApp 2024-07-21 a las 01 10 55_30658909](https://github.com/user-attachments/assets/29dab018-f90d-492b-a675-10607edf3ac1)
 ![Imagen de WhatsApp 2024-07-21 a las 01 10 55_8beba30d](https://github.com/user-attachments/assets/9a9502b0-2242-43d0-be7d-a6ba66272e9e)
-
-
-
-
-
-
-
-
-
-
+![Imagen de WhatsApp 2024-07-21 a las 01 10 55_88172489](https://github.com/user-attachments/assets/c3797f2d-7fc5-4536-8872-bf3f83cc72b0)
+![Imagen de WhatsApp 2024-07-21 a las 00 51 40_128c1c23](https://github.com/user-attachments/assets/2829d67c-0cce-4c3c-95db-968e0ed9a999)
+![Imagen de WhatsApp 2024-07-21 a las 00 51 40_b7021741](https://github.com/user-attachments/assets/50de7e4b-831b-452f-be9c-d953efbcde94)
+![Imagen de WhatsApp 2024-07-21 a las 00 51 40_126ea27d](https://github.com/user-attachments/assets/2f5f686f-f4f8-4c2d-8198-4ced473a0d18)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 56_a9ae0fa4](https://github.com/user-attachments/assets/9fbe3fd9-0270-4615-8368-c5d5a9bf077f)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 57_874f79c4](https://github.com/user-attachments/assets/bd223149-6451-4305-8a0e-1d3a89111604)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 55_4f9a0604](https://github.com/user-attachments/assets/81c1c2d5-f2b0-47db-94f3-0fa2fb533726)
+![Imagen de WhatsApp 2024-07-21 a las 00 51 40_d9578720](https://github.com/user-attachments/assets/a5462b9b-2920-46f4-b266-2001d66b8865)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 56_5969c12a](https://github.com/user-attachments/assets/e28595c3-03f7-4aeb-afc7-688aa301817f)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 59_6cb516a6](https://github.com/user-attachments/assets/04adcdba-e538-4555-a821-665a986e69f8)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 57_80a03c2c](https://github.com/user-attachments/assets/c66accab-4e17-4cc5-bb70-1aa3f0564b21)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 57_eff5cfd2](https://github.com/user-attachments/assets/3380f65f-b428-4450-9a35-08ad1a3e68dd)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 57_c4448e41](https://github.com/user-attachments/assets/4c3eb9af-31dc-4693-bef2-e5d4ae94e0ef)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 59_442d7eeb](https://github.com/user-attachments/assets/7fdc062e-67ef-4deb-b99b-528d3320b477)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 59_554d9143](https://github.com/user-attachments/assets/31627bb5-886e-4254-a00f-60a8d68b5a0f)
+![Imagen de WhatsApp 2024-07-21 a las 01 10 59_2f0eb079](https://github.com/user-attachments/assets/36cc879a-00be-4264-9fb0-8ed498de8b58)

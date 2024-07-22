@@ -83,7 +83,14 @@ DIARIO LA VOZ DE HUANCAYO
 ![Imagen de WhatsApp 2024-07-21 a las 01 11 01_fcd483c3](https://github.com/user-attachments/assets/5c44c317-85f6-4ea7-8f6f-f2cb58d91520)
 ![Imagen de WhatsApp 2024-07-21 a las 01 11 01_7665313c](https://github.com/user-attachments/assets/027e35a5-3ce9-47b2-841b-9acf8a825a39)
 
-PRIMICIA
+DIARIO PRIMICIA
+
+- El lanzamiento de este diario, se dio el 20 de julio de 1996, con una esperanza y alegría por parte de los ciudadanos al saber que contarían con el primer periódico a color, algo que marcaba la diferencia en su momento. Hasta tres cohetes fueron lanzados al aire en señal de regocijo, después de llegar a las manos del público lector.
+  
+- Los huancaínos también recibieron muy conmocionados el tener un diario más en la ciudad (después de Correo y La Voz de Huancayo), de manera que algunos medios radiales comentaron aquella llegada con un saludo entusiasmado de bienvenida al nuevo diario Primicia. Durante sus años de desarrollo, fue formando un prestigio al haberse convertido en “una importante escuela” de numerosos jóvenes y señoritas que hoy destacan en los diversos medios de información y relaciones públicas en distintas instituciones públicas.
+  
+- A continuación se presenta un total de 29 registros digitalizados del diario Primicia (Julio 1996):
+
 
 ![Imagen de WhatsApp 2024-07-20 a las 16 36 30_1ddfd202](https://github.com/user-attachments/assets/bcfef0cd-4844-4f87-8a5c-251259c197ae)
 ![Imagen de WhatsApp 2024-07-21 a las 01 11 01_4a80555e](https://github.com/user-attachments/assets/b1391ebb-4d87-4ceb-8a48-9a5b9abf0e1c)

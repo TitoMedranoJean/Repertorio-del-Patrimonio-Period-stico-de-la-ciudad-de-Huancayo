@@ -1,9 +1,7 @@
 # Repertorio-del-Patrimonio-Periodístico-en-la-ciudad-de-Huancayo
 Desde 1971 a 1996.
 
-(AQUÍ ESCRIBES SU DESCRIPCIÓN) (CORREO-Julio-1971)
-
-(AQUI JALAS O ARRASTRAS LAS FOTOGRAFÍA)
+CORREO
 
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 35_9e2ffbab](https://github.com/user-attachments/assets/0dfad0b1-eff0-4718-9bf7-e2ed4e54ed64)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 35_c5664389](https://github.com/user-attachments/assets/486e0944-0459-4bba-af0b-8127b64b813a)

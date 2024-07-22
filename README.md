@@ -6,7 +6,7 @@ DIARIO CORREO
   
 -	Desde sus inicios este diario se ha identificado por su singular cobertura en la noticia policial, y a lo largo de los años, producía ediciones suplementarias con el objetivo de vincular mejor a sus lectores pero sin perder una comunicación a base hechos reales, demostrando así, la capacidad ineludible si mantenerse vigente es lo que se quiere: adaptabilidad.
   
--	A continuación se presenta un total de 35 registros digitalizados del diario Correo (1971)
+-	A continuación se presenta un total de 35 registros digitalizados del diario Correo (julio - 1971):
 
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 35_9e2ffbab](https://github.com/user-attachments/assets/0dfad0b1-eff0-4718-9bf7-e2ed4e54ed64)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 35_c5664389](https://github.com/user-attachments/assets/486e0944-0459-4bba-af0b-8127b64b813a)

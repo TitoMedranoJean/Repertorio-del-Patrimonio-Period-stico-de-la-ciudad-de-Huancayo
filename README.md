@@ -45,7 +45,13 @@ DEJANDO UN RENGLON DE ESPACIO (portadas)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 46_427b3386](https://github.com/user-attachments/assets/9ac122e4-5241-479f-b0fe-d9ee1d28739c)
 ![Imagen de WhatsApp 2024-07-21 a las 00 17 46_079281b6](https://github.com/user-attachments/assets/c3620900-7bf5-4c4f-8ed4-af2d4421b4b7)
 
-LA VOZ
+DIARIO LA VOZ DE HUANCAYO
+
+- Surgió en el año 1912, como parte de una cadena nacional de diarios perteneciente a la familia Pardo, en un local ubicado en la segunda cuadra de la calle Real.
+  
+-  Durante sus años de desarrollo predominantes, La Voz de Huancayo perduró plausiblemente cumpliendo su rol como vocero de la colectividad huancaína, del Valle del Mantaro, La Oroya y Tarma, del mismo modo, también contó con un servicio de teletipo, manifestando sus mejores momentos. Posterior al cumplir 86 años ante el público, suscitó una controversia interna ente la Administración y el Sindicato de Trabajadores, que generaron contradicciones y provocando su expiración en 1996.
+  
+- A continuación se presenta un total de 28 registros digitalizados del diario La Voz de Huancayo (Julio 1995):
 
 ![Imagen de WhatsApp 2024-07-21 a las 00 51 40_76044d67](https://github.com/user-attachments/assets/1f46baba-4f1b-41af-8fb1-df29d563d160)
 ![Imagen de WhatsApp 2024-07-21 a las 01 10 47_a2642cc7](https://github.com/user-attachments/assets/00b0c2be-37c7-4141-b7f1-2ef9ff4b6d08)

@@ -1,4 +1,4 @@
-# Repertorio-del-Patrimonio-Periodístico-en-la-ciudad-de-Huancayo (1971- 1996)
+# Repertorio del Patrimonio Periodístico en la ciudad de Huancayo (1971- 1996)
 
 CORREO
 
